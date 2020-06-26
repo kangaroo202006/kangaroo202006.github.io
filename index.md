@@ -15,3 +15,9 @@ Obwohl es immer und überall mit seiner unverblümten Art aneckt ist das Kängur
 * stets bei der Sache und um Aufklärung bemüht
 * immer bereit, für das Gute in der Gesellschaft einzutreten
 Diese Eigenschaften lassen es ihm nachsehen, dass es mit primitiv zugespitzten Ansichten durchs Leben stolpert und einen großen Fußabdruck entlarvender Absurditäten hinterlässt.
+So z.B. mit seinem richtungweisenden Ausspruch
+> Ein Idiot in Uniform
+> ist immer noch ein Idiot!
+der von Uniformträgern gern gekontert wird mit der Erkenntnis
+> Ein Idiot in Uniform
+> ist immer noch in Uniform.
