@@ -18,6 +18,10 @@ Diese Eigenschaften lassen es ihm nachsehen, dass es mit primitiv zugespitzten A
 So z.B. mit seinem richtungweisenden Ausspruch
 > Ein Idiot in Uniform
 > ist immer noch ein Idiot!
+
 der von Uniformträgern gern gekontert wird mit der Erkenntnis
+
 > Ein Idiot in Uniform
 > ist immer noch in Uniform.
+
+<img src="https://img.zeit.de/2020/08/das-wetter-bild-1/wide__820x461__desktop"/>
